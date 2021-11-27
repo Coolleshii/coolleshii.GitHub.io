@@ -1,3 +1,13 @@
+# Emily Griffin Art
+welcome, fren 嵐嵐嵐嵐嵐郎郎郎
+
+
+hire me B)
+
+
+
+-----------------------
+
 ## Welcome to GitHub Pages
 
 You can use the [editor on GitHub](https://github.com/Coolleshii/coolleshii.GitHub.io/edit/main/index.md) to maintain and preview the content for your website in Markdown files.
